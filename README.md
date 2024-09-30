@@ -15,7 +15,7 @@
 📬 Contact Me:
 Email: vanshsharma1928@hotmail.com
 Phone: +91 (910) 305-3196
-Twitter: @vanshsharma1928
+
 🎓 Education
 Chandigarh University | B.E. CSE (Hons.) Information Security | 2022-2026
 CGPA: 7.3/10.0
